@@ -23,3 +23,8 @@
 Rahad Hasan - [@twitter_handle](RJRafsan13) - rahadhasan148@gmail.com
 
 Project Link: [https://github.com/rahadhasan07/free-rdp.git](https://github.com/rahadhasan07/free-rdp.git)
+
+
+
+
+- RDP Link👉 <a href="https://badbuzz07.blogspot.com/2023/05/how-to-get-life-time-rdp-for-all.html">Click Me For RDP</a>
